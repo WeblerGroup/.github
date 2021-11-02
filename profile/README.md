@@ -1,3 +1,3 @@
 # Welcome to WeblerGroup
 
-Apparently, this group prefers keeping air of mystery about them.
+Apparently, this group prefers to keep air of mystery around them.
